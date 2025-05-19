@@ -1,0 +1,1 @@
+# StrukPratikum8
